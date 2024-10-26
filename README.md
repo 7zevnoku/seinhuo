@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/58b0ddc4-b5a1-4c5d-a84e-596a2d2e07ab)
+![image](https://i.ibb.co/D86Nvph/Untitled639-20241026231604.png)
 
 🍙 **NOTE** : i will **not** accept random fq's, but if we've talked long enough and you think we should be friends, **hmu.**　﹒ 　︵︵　　𓏵
 
